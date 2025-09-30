@@ -1,1 +1,1 @@
-![Banner](https://www.upload.ee/image/17480100/K9Crypt_Banner.png)
+![Banner](https://www.upload.ee/image/18653064/Twitter_Banner.png)
